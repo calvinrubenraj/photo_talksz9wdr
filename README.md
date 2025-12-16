@@ -1,1 +1,0 @@
-# photo_talksz9wdr
